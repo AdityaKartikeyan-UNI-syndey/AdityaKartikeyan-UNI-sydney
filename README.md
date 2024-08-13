@@ -1,4 +1,3 @@
-# AdityaKartikeyan-UNI-sydney
 
 # Hi there, I'm Aditya Kartikeyan 👋
 
